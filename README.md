@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/7f87edbb-c1cf-4cc8-b557-166dde0ff814) ![image](https://github.com/user-attachments/assets/23594fc0-c073-4be9-90d8-040224670413)
+![image](https://github.com/user-attachments/assets/7f59de88-4599-4ba8-b852-ad68ccd8809e)
+
 --------------------
 🐚''𝐈 𝐜𝐨𝐮𝐥𝐝 𝐛𝐞 𝐚𝐬𝐬𝐞𝐦𝐛𝐥𝐢𝐧𝐠 𝐟𝐨𝐬𝐬𝐢𝐥𝐬 𝐫𝐢𝐠𝐡𝐭 𝐧𝐨𝐰...''🐚
 -
