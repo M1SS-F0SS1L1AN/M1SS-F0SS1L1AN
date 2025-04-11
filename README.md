@@ -5,5 +5,6 @@
 -
 ⚡''𝐓𝐡𝐢𝐬 𝐢𝐬 𝐣𝐮𝐬𝐭 𝐭𝐡𝐞 𝐰𝐚𝐫𝐦-𝐮𝐩, 𝐫𝐢𝐠𝐡𝐭?''⚡
 --------------------
-![Ekran görüntüsü 2025-03-22 041846](https://github.com/user-attachments/assets/10048eb1-1ce6-4166-b182-fcc9ddb15120)
-
+![image](https://github.com/user-attachments/assets/d471935a-5154-4740-b047-419e412f6af8)
+--------------------
+# I'm a Shellvision shipper, yes, but I don't force it on others.
