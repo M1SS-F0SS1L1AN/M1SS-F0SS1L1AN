@@ -7,7 +7,7 @@
 --------------------
 🐚 . Read pronouns.cc for info
 --------------------
-⚡ . C+H Allowed
+⚡ . C+H Welcomed, I follow back if I find you cool!
 --------------------
 ![image](https://github.com/user-attachments/assets/d471935a-5154-4740-b047-419e412f6af8)
 --------------------
