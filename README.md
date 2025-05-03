@@ -1,6 +1,6 @@
-![image](https://github.com/user-attachments/assets/e212c4a9-ee8d-4465-9585-23773230e846)
 
-# Drawn by me, I KNOW THE EYES LOOK BAD I DREW IT ON PC PLEASE HAVE MERCY💔
+
+# Art by @fascinatedberry on GitHub, THANK YOU!! ^^
 --------------------
 🐚 . Proud Shellvision shipper
 --------------------
