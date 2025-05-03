@@ -7,7 +7,7 @@
 --------------------
 ⚡ . Doubles strictly DNI.
 --------------------
-🐚 . Read pronouns.cc for info
+🐚 . Read strawpage for info, pronouns.cc for extra
 --------------------
 ⚡ . C+H Welcomed, I follow back if I find you cool!
 --------------------
