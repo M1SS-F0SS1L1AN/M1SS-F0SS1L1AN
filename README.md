@@ -3,13 +3,11 @@
 
 # Art by @fascinatedberry on GitHub, THANK YOU!! ^^
 --------------------
-🐚 . Proud Shellvision shipper
+🐚 . BYI: I'm a Shellvision shipper, but I'm not like those stereotypes who randomly go around and kiss Vee ponies. I don't force anyone to ship it, and I'll respect you if you don't like it, but please don't shove the fact that you hate it in my face.
 --------------------
-⚡ . Doubles strictly DNI.
+⚡ . Read strawpage for info, pronouns.cc for extra (IRLs, fictkins, copinglinks etc)! C+H is always welcomed unless there's ''DNI...'' in my name. I will follow your GitHub back if I find you cool!
 --------------------
-🐚 . Read strawpage for info, pronouns.cc for extra
+
+
 --------------------
-⚡ . C+H Welcomed, I follow back if I find you cool!
---------------------
-![image](https://github.com/user-attachments/assets/7f59de88-4599-4ba8-b852-ad68ccd8809e)
---------------------
+![ShellyAndVeeLesbianShirt](https://github.com/user-attachments/assets/0d6ae8c6-9276-40b1-8e2c-a7f04c9ee6eb)
