@@ -12,3 +12,11 @@
 --------------------
 
 ![ShellyPattingVee](https://github.com/user-attachments/assets/2e32e66e-d1bc-49b2-a69f-d56bc00437f3)
+
+# Quick info about Ships
+
+-Veestro __(Vee X Astro)__ please do __not__ interact. (unless friend or respectful)
+
+-Moonshell __(Astro X Shelly)__ and Berryvision __(Sprout X Vee)__ is __on thin ice__. (unless friend or respectful)
+
+# I know I look selfish, but I can't force myself to like the ships. Especially Veestro. Of course I'll respect you, but I just can't change my opinion on them no matter how hard I try.
