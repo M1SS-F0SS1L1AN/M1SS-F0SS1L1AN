@@ -19,4 +19,4 @@
 
 -Moonshell __(Astro X Shelly)__ and Berryvision __(Sprout X Vee)__ is __on thin ice__. (unless friend or respectful)
 
-# I know I look selfish, but I can't force myself to like the ships. Especially Veestro. Of course I'll respect you, but I just can't change my opinion on them no matter how hard I try.
+# I know I look selfish, but I can't force myself to like the ships. Especially Veestro. Of course I'll respect you, but I just can't change my opinion on them no matter how hard I try. Seeing those ships just make me really uncomfortable. Thanks for understanding.
