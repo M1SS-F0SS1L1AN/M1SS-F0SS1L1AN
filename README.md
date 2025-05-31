@@ -3,7 +3,7 @@
 
 # Art by @fascinatedberry on GitHub, THANK YOU!! ^^
 --------------------
-🐚 . BYI: I'm a Shellvision shipper, but I'm not like those stereotypes who randomly go around and kiss Vee ponies. I don't force anyone to ship it, and I'll respect you if you don't like it, but please don't shove the fact that you hate it in my face. If you're going to be a hater and bring it up around me go ahead and block. I am NOT interested in interacting with you.
+🐚 . BYI: I'm THE Shellvision CEO, but I'm not toxic about it. I don't force anyone to ship it, and I'll respect you if you don't like it, but please don't shove the fact that you hate it in my face. If you're going to be a hater and bring it up around me go ahead and block. I am NOT interested in interacting with you.
 --------------------
 ⚡ . Read strawpage for info, pronouns.cc for extra (IRLs, fictkins, copinglinks etc)! C+H is always welcomed unless there's ''DNI...'' in my name. I will follow your GitHub back if I find you cool!
 --------------------
