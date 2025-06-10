@@ -1,7 +1,7 @@
 ![ShellvisionByRia](https://github.com/user-attachments/assets/b89b9bf3-b401-4013-b182-06137e9df7d8)
 
 
-# Art by @fascinatedberry on GitHub, THANK YOU!! ^^
+# Art by @loudshqrk on GitHub, THANK YOU!! ^^
 --------------------
 🐚 . BYI: I'm THE Shellvision CEO, but I'm not toxic about it. I don't force anyone to ship it, and I'll respect you if you don't like it, but please don't shove the fact that you hate it in my face. If you're going to be a hater and bring it up around me go ahead and block. I am NOT interested in interacting with you.
 --------------------
