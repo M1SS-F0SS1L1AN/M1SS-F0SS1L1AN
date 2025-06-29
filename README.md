@@ -1,4 +1,3 @@
-# !! I'M GOING TO BE INACTIVE FOR A WHILE BECAUSE OF PERSONAL REASONS BUT I'LL BE BACK AFTERWARDS I'M NOT DEAD (WILL BE BACK ON JUNE 27TH) !!
 
 ![ShellvisionByRia](https://github.com/user-attachments/assets/b89b9bf3-b401-4013-b182-06137e9df7d8)
 
