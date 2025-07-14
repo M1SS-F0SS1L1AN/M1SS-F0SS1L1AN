@@ -5,3 +5,4 @@
 --------------------
 ⚡ . Read strawpage for info, pronouns.cc for extra (IRLs, fictkins, copinglinks etc)! I will follow you back if I find you cool! If you want to learn about my ships, visit https://dw-shiplist.straw.page/ !!
 --------------------
+<img width="962" height="591" alt="image" src="https://github.com/user-attachments/assets/c79f0493-aa6f-430e-9821-3047f2aaf38f" />
