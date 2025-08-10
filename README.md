@@ -7,7 +7,8 @@
 --------------------
 --------------------
 
-<img width="900" height="600" alt="image" src="https://github.com/user-attachments/assets/9186f80d-228a-46c9-a01a-f3b6010234a3" />
+<img width="900" height="600" alt="image" src="https://github.com/user-attachments/assets/240298c7-8799-4b88-b26e-bee3f818de18" />
 
-the yuri is real
+
+hi i love them
 
