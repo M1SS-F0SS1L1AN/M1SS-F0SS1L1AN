@@ -7,8 +7,9 @@
 --------------------
 --------------------
 
-<img width="900" height="600" alt="image" src="https://github.com/user-attachments/assets/240298c7-8799-4b88-b26e-bee3f818de18" />
+
+<img width="900" height="600" alt="githubbanner" src="https://github.com/user-attachments/assets/18be1374-a0ea-4e53-b722-e5a074fa3e33" />
 
 
-hi i love them
 
+# hi this is me ok?
